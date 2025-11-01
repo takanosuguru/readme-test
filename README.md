@@ -1,4 +1,4 @@
-# Hip Weapon Launcher - Q&A
+# Gun Mod - Q&A
 
 ## English
 
